@@ -7,6 +7,136 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 12:39
+---
+
+## VahidOOnLine — post 239246
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239246_1778404162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام ایرانی، فرمانده نیروی دریایی ارتش گفت: «زیردریایی‌های ما در آب‌های تنگه هرمز دست به ماشه و در حال گسترش و کف‌نشینی هستند.»
+
+او افزود: «دلفین‌های خلیج فارس برای نشان دادن اقتدار دفاع دریایی، در تنگه هرمز روی آب آمدند و پس از اجرای چند مانور آرایشی به اعماق دریا رفتند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239245
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239245_1778404162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان مقیم سوئیس، شنبه ۱۹ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر زوریخ تجمع کردند و فریاد «سپاه تروریست است» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239244
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239244_1778404164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی گفت: «ملت ایران در برابر دشمن هرگز سر خم نخواهد کرد و اگر سخنی از گفت‌وگو یا مذاکره مطرح می‌شود، معنای آن تسلیم یا عقب‌نشینی نیست بلکه هدف، احقاق حقوق ملت ایران و دفاع مقتدرانه از منافع ملی است.»
+
+او افزود: «مردم باید با واقع‌بینی شرایط کشور و محدودیت‌های موجود را درک کنند. طبیعی است که در این مسیر سختی‌ها و مشکلاتی وجود داشته باشد، اما با همراهی مردم و اتکا به انسجام ملی، مشکلات قابل حل خواهد بود.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز 10 May، روز جهانی مادره
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 336431
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336431_1778404165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام ایرانی، فرمانده نیروی دریایی ارتش گفت: «زیردریایی‌های ما در آب‌های تنگه هرمز دست به ماشه و در حال گسترش و کف‌نشینی هستند.»
+
+او افزود: «دلفین‌های خلیج فارس برای نشان دادن اقتدار دفاع دریایی، در تنگه هرمز روی آب آمدند و پس از اجرای چند مانور آرایشی به اعماق دریا رفتند.»
+https://iranintl.com/202605101887
+</div>
+
+## IranIntlTV — post 336430
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336430_1778404165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان مقیم سوئیس، شنبه ۱۹ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر زوریخ تجمع کردند و فریاد «سپاه تروریست است» سردادند.
+</div>
+
+## IranIntlTV — post 336429
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336429_1778404167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی گفت: «ملت ایران در برابر دشمن هرگز سر خم نخواهد کرد و اگر سخنی از گفت‌وگو یا مذاکره مطرح می‌شود، معنای آن تسلیم یا عقب‌نشینی نیست بلکه هدف، احقاق حقوق ملت ایران و دفاع مقتدرانه از منافع ملی است.»
+
+او افزود: «مردم باید با واقع‌بینی شرایط کشور و محدودیت‌های موجود را درک کنند. طبیعی است که در این مسیر سختی‌ها و مشکلاتی وجود داشته باشد، اما با همراهی مردم و اتکا به انسجام ملی، مشکلات قابل حل خواهد بود.»
+iranintl.com/202605105451
+</div>
+
+## IranIntlTV — post 336428
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336428_1778404168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال گزارش داد اسرائیل برای پشتیبانی از عملیات هوایی در جنگ با جمهوری اسلامی، پایگاهی سری در غرب عراق ایجاد کرده‌ است.
+
+جزییات بیشتر در گفت‌وگو با اشکان صفایی، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## Hranews — post 112858
+
+<div align="center">
+  <img src="telegram/content/Hranews_112858_1778404170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت؛ مصطفی اتحادی به زندان تربت‌حیدریه منتقل شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – مصطفی اتحادی، شهروند اهل سبزوار که بیش از ۷۰ روز است بازداشت شده، در روزهای اخیر از زندان بندرعباس به زندان تربت‌حیدریه منتقل شد. وی همچنان در بلاتکلیفی قضایی به سر می‌برد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مصطفی اتحادی در بازداشت بسر میبرد.
+
+یک منبع مطلع ضمن تایید این خبر به هرانا گفت: “از بازداشت آقای اتحادی ۷۲ روز می‌گذرد و او اواخر هفته گذشته از زندان بندرعباس به زندان تربت‌حیدریه منتقل شده است. وی همچنان در بلاتکلیفی قضایی به سر می‌برد و تاکنون امکان آزادی موقت او نیز فراهم نشده است.”
+
+ادامه مطلب
+
+#مصطفی_اتحادی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 12:33
 ---
 
